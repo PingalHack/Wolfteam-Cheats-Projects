@@ -1,2 +1,1 @@
-
-https://i.hizliresim.com/jj8gf3b.jpg
+A wolfteam cheat I developed in the past
